@@ -6,7 +6,6 @@
 
 </p>
 <p align="center">
-  <img src="https://pinimg.com" alt="Anime Illustration with Heart Math Trick" width="350">
   <br>
   <br>
   " Boat. " - AndreW2002
