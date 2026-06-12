@@ -7,6 +7,5 @@
 </p>
 <p align="center">
   <br>
-  <br>
   " Boat. " - AndreW2002
 </p>
